@@ -1,0 +1,2 @@
+# LUCKY
+LIFE
